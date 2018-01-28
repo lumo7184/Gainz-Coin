@@ -1,0 +1,2 @@
+# Gainz-Coin
+Crypto Currency 
